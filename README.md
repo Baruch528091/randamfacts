@@ -1,1 +1,1 @@
-The Code of Hammurabi, one of the earliest known sets of laws, dates back to around 1754 BC.
+World War I, also known as the Great War, lasted from 1914 to 1918.
