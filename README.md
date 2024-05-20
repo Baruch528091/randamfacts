@@ -1,1 +1,1 @@
-The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
+The signing of the Magna Carta in 1215 at Runnymede, England, was a significant step towards establishing the principle of the rule of law.
