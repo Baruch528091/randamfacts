@@ -1,1 +1,1 @@
-The first modern Olympics were held in Athens, Greece, in 1896.
+The Korean War, fought from 1950 to 1953, ended in an armistice, leaving the Korean Peninsula divided into North and South Korea.
