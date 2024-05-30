@@ -1,1 +1,1 @@
-The Space Race between the USA and the USSR culminated with the Apollo 11 moon landing in 1969.
+Brexit, the United Kingdom's withdrawal from the European Union, was officially completed on January 31, 2020.
