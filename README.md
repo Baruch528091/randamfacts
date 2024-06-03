@@ -1,1 +1,1 @@
-The Cuban Missile Crisis in 1962 brought the world to the brink of nuclear war between the United States and the Soviet Union.
+The dropping of atomic bombs on Hiroshima and Nagasaki in 1945 marked the end of World War II.
