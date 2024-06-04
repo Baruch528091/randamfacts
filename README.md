@@ -1,1 +1,1 @@
-The dropping of atomic bombs on Hiroshima and Nagasaki in 1945 marked the end of World War II.
+The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
