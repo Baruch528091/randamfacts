@@ -1,1 +1,1 @@
-The Battle of Hastings in 1066 saw the Norman conquest of England.
+Christopher Columbus reached the Americas in 1492, initiating European exploration and colonization.
