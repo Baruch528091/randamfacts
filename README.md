@@ -1,1 +1,1 @@
-The Zimmermann Telegram, intercepted by British intelligence in 1917, played a crucial role in the United States' decision to enter World War I.
+The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
