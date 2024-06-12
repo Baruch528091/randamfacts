@@ -1,1 +1,1 @@
-The collapse of Lehman Brothers in 2008 triggered a global financial crisis.
+The construction of Stonehenge in England began around 3000 BC.
