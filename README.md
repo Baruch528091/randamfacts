@@ -1,1 +1,1 @@
-The Space Race between the USA and the USSR culminated with the Apollo 11 moon landing in 1969.
+Shakespeare wrote his renowned play "Romeo and Juliet" around 1595.
