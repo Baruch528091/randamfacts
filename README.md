@@ -1,1 +1,1 @@
-Shakespeare wrote his renowned play "Romeo and Juliet" around 1595.
+Ferdinand Magellan's expedition circumnavigated the globe between 1519 and 1522.
