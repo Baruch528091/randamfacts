@@ -1,1 +1,1 @@
-The ancient city of Rome was founded in 753 BC.
+Christopher Columbus reached the Americas in 1492, initiating European exploration and colonization.
