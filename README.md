@@ -1,1 +1,1 @@
-Christopher Columbus reached the Americas in 1492, initiating European exploration and colonization.
+Ferdinand Magellan's expedition circumnavigated the globe between 1519 and 1522.
