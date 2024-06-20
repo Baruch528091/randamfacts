@@ -1,1 +1,1 @@
-Ferdinand Magellan's expedition circumnavigated the globe between 1519 and 1522.
+Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
