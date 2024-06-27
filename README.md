@@ -1,1 +1,1 @@
-The Berlin Wall, symbolizing the division between East and West during the Cold War, was erected in 1961 and fell in 1989.
+The first industrial textile mill in the world was established by Richard Arkwright in Cromford, England, in 1771.
