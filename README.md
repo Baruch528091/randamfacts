@@ -1,1 +1,1 @@
-The first industrial textile mill in the world was established by Richard Arkwright in Cromford, England, in 1771.
+The invention of the telescope by Galileo Galilei in the early 17th century revolutionized astronomy.
