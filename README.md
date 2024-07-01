@@ -1,1 +1,1 @@
-The invention of the telescope by Galileo Galilei in the early 17th century revolutionized astronomy.
+The Cuban Missile Crisis in 1962 brought the world to the brink of nuclear war between the United States and the Soviet Union.
