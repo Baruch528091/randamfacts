@@ -1,1 +1,1 @@
-The Battle of Hastings in 1066 saw the Norman conquest of England.
+The Arab Spring, a wave of protests and uprisings, began in late 2010.
