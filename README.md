@@ -1,1 +1,1 @@
-Shakespeare wrote his renowned play "Romeo and Juliet" around 1595.
+The Hundred Years' War between England and France lasted from 1337 to 1453.
