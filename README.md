@@ -1,1 +1,1 @@
-The Hundred Years' War between England and France lasted from 1337 to 1453.
+Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
