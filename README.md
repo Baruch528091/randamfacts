@@ -1,1 +1,1 @@
-The Battle of Hastings in 1066 saw the Norman conquest of England.
+The collapse of Lehman Brothers in 2008 triggered a global financial crisis.
