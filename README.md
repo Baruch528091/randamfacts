@@ -1,1 +1,1 @@
-The collapse of Lehman Brothers in 2008 triggered a global financial crisis.
+The Treaty of Tordesillas in 1494 divided the newly discovered lands outside Europe between Spain and Portugal.
