@@ -1,1 +1,1 @@
-The Russian Revolution in 1917 led to the overthrow of the Tsarist autocracy and the establishment of the Soviet Union.
+The invention of the telescope by Galileo Galilei in the early 17th century revolutionized astronomy.
