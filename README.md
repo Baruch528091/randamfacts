@@ -1,1 +1,1 @@
-The invention of the telescope by Galileo Galilei in the early 17th century revolutionized astronomy.
+The ancient city of Rome was founded in 753 BC.
