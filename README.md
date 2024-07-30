@@ -1,1 +1,1 @@
-The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
+The Magna Carta, signed in 1215, limited the power of the English monarchy and laid the groundwork for modern constitutional law.
