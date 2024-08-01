@@ -1,1 +1,1 @@
-The Vietnam War, spanning from 1955 to 1975, was a major conflict of the Cold War era.
+The Arab Spring, a wave of protests and uprisings, began in late 2010.
